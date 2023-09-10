@@ -3,9 +3,10 @@
 
 ##页面效果展示
 
-![Uploading 1694318420156.jpg…]()
 
 
+
+![2](https://github.com/2002lzt/ikunstudy/assets/144540165/7ccf7992-30d8-447f-af05-392ca000cc17)
 
 
 
